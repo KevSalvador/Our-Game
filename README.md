@@ -1,2 +1,2 @@
 # Our Game
- Both Kevin and Benny and Mabelle Game
+ Both Kevin and Benny and Maybelle Game
